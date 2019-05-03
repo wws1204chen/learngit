@@ -1,6 +1,4 @@
 Git is a version control system!!
 hahah 
 hongchenha 
-what do you do?
-and you?
-hahahah
+what 梵蒂冈搞不好
